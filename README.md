@@ -1,2 +1,2 @@
 # GRAPHIC-DESIGN-PORTFOLIO
-A collection of graphic design projects including branding, social media designs, marketing materials, book covers, and visual storytelling work.
+A curated collection of my graphic design projects, branding works, and visual case studies.
